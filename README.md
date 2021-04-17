@@ -1,3 +1,3 @@
 ### Hola, soy Rafael...👋
-</Un poco mas de mi>
+</Un poco sobre mi>
 
