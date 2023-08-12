@@ -6,4 +6,5 @@
 
 
 </Un poco sobre mi>
+Ingeniero en Informática-Desarrollador Web-Diseñador Marketing Digital-Especialista en Entornos Virtuales-Magister en Educación Universitaria-Profesor Universitario VPDR UNELLEZ Apure-Venezuela.
 
